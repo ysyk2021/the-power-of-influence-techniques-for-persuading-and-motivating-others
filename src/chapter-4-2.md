@@ -1,5 +1,4 @@
-Chapter 4: Developing Credibility and Trust: Building Rapport and Relationships
-===============================================================================
+# Building Rapport and Relationships
 
 In this chapter, we will explore techniques for developing credibility and trust when persuading and motivating others. We will discuss how to build rapport and establish relationships that enable effective influence.
 

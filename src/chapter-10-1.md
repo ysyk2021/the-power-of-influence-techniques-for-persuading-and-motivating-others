@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Recap of Key Points and Strategies
-==========================================================
+# Recap of Key Points and Strategies
 
 In this book, we have explored various techniques for persuading and motivating others. From developing credibility and trust to understanding the psychology of influence, we have covered a range of topics that are essential for effective influence.
 

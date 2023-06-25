@@ -1,5 +1,4 @@
-Chapter 8: Measuring and Evaluating Influence Effectiveness: Establishing Key Performance Indicators (KPIs)
-===========================================================================================================
+# Establishing Key Performance Indicators (KPIs)
 
 In this chapter, we will explore the importance of establishing key performance indicators (KPIs) when measuring and evaluating influence effectiveness. By setting clear KPIs, individuals can track their progress and evaluate the impact of their influence efforts.
 

@@ -1,5 +1,4 @@
-Chapter 2: Overview of Influence: The Impact of Influence on Team Performance
-=============================================================================
+# The Impact of Influence on Team Performance
 
 In this chapter, we will explore the impact of influence on team performance. By understanding how influence can impact team performance, you can become a more effective leader and achieve your team's goals.
 

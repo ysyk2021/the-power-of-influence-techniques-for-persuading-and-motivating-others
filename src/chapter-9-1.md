@@ -1,5 +1,4 @@
-Chapter 9: Sustaining Influence Efforts: Techniques for Sustaining Influence Efforts
-====================================================================================
+# Techniques for Sustaining Influence Efforts
 
 In this chapter, we will explore techniques for sustaining influence efforts. By understanding how to sustain influence efforts, individuals can ensure that their influence continues to have an impact over time.
 

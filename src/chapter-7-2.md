@@ -1,5 +1,4 @@
-Chapter 7: Leading with Influence: Empowering Others
-====================================================
+# Empowering Others
 
 In this chapter, we will explore techniques for leading with influence by empowering others. By empowering others, leaders can create a more engaged and motivated team that is better equipped to achieve success.
 

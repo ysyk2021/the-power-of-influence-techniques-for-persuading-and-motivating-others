@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Defining the Importance of Influence in Leadership
-===========================================================================
+# Defining the Importance of Influence in Leadership
 
 In this chapter, we will define the importance of influence in leadership. We will explore how effective influence can make a difference in achieving leadership goals and inspiring team members to perform at their best.
 

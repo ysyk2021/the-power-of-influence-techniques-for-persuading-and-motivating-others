@@ -1,5 +1,4 @@
-Chapter 6: Inspiring and Motivating Others: Understanding What Motivates People
-===============================================================================
+# Understanding What Motivates People
 
 In this chapter, we will explore the importance of understanding what motivates people in inspiring and motivating them. By understanding what motivates individuals, individuals can tailor their approach and provide incentives that will resonate with them.
 

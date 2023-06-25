@@ -1,5 +1,4 @@
-Chapter 7: Leading with Influence: Encouraging Collaboration and Teamwork
-=========================================================================
+# Encouraging Collaboration and Teamwork
 
 In this chapter, we will explore techniques for leading with influence to encourage collaboration and teamwork. We will discuss how to build a culture of collaboration, facilitate effective communication, and inspire individuals to work together towards a common goal.
 

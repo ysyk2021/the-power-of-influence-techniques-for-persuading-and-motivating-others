@@ -1,5 +1,4 @@
-Chapter 4: Developing Credibility and Trust: Techniques for Developing Credibility and Trust
-============================================================================================
+# Techniques for Developing Credibility and Trust
 
 In this chapter, we will explore techniques for developing credibility and trust when persuading and motivating others. We will discuss how to establish yourself as a credible and trustworthy individual that others are willing to listen to and follow.
 
