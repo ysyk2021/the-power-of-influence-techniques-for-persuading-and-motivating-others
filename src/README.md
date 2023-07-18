@@ -8,5 +8,4 @@ Whether you're looking to inspire your team, close more deals, or win over frien
 
 So why wait? Start unlocking the power of influence today and take your skills to the next level!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
