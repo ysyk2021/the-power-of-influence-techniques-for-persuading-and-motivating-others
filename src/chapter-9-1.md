@@ -1,5 +1,3 @@
-Techniques for Sustaining Influence Efforts
-======================================================
 
 Influence is not a one-time event but rather an ongoing process. To be truly effective in persuading and motivating others, it is essential to employ techniques that help sustain your influence efforts over time. This chapter explores several strategies and tactics that can assist you in maintaining and strengthening your influencing power.
 

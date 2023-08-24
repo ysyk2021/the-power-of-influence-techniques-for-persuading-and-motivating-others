@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we have explored various techniques for persuading and motivating others. From understanding what motivates people to using persuasion techniques in different situations, we have covered a range of topics that can help individuals become more effective communicators and leaders.
 

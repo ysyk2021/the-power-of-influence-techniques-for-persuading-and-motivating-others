@@ -1,5 +1,3 @@
-Chapter 7: Leading with Influence
-=================================
 
 In this chapter, we will explore techniques for leading with influence. By using these techniques effectively, individuals can become more effective leaders and achieve success for themselves and their team.
 

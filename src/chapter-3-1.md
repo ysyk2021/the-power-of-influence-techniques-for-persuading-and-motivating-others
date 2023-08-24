@@ -1,4 +1,3 @@
-# Techniques for Understanding the Psychology of Influence
 
 In this chapter, we will explore techniques for understanding the psychology of influence. We will discuss how to identify and apply key psychological principles to effectively persuade and motivate others.
 

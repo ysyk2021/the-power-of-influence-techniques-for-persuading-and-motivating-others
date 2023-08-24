@@ -1,5 +1,3 @@
-Chapter 6: Inspiring and Motivating Others
-==========================================
 
 In this chapter, we will explore techniques for inspiring and motivating others. By understanding how to inspire and motivate others, individuals can become more effective leaders and achieve their desired outcomes.
 

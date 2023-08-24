@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Influence Efforts
-=======================================
 
 In this chapter, we will explore techniques for sustaining influence efforts. By continuously improving and adapting to changes in the work environment, individuals can maintain their effectiveness as influencers over time.
 

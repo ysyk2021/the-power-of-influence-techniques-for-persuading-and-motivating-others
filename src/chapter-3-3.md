@@ -1,4 +1,3 @@
-# Exploring the Relationship between Influence and Motivation
 
 In this chapter, we will explore the relationship between influence and motivation. We will discuss the psychological principles that underlie effective influence techniques and how to use them to motivate others.
 

@@ -1,5 +1,3 @@
-Techniques for Leading with Influence
-==============================================
 
 In today's rapidly changing world, effective leadership requires more than just authority and power. Leaders must be able to influence and motivate others towards a common goal. This chapter explores various techniques for leading with influence that can help leaders inspire, persuade, and bring out the best in their teams.
 

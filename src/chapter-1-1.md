@@ -1,5 +1,3 @@
-Defining the Importance of Influence in Leadership
-=============================================================
 
 In any organization, leadership plays a crucial role in guiding and motivating individuals towards achieving common goals. Effective leaders possess a unique skill set that enables them to influence and inspire others. This chapter aims to define the importance of influence in leadership, exploring how it impacts organizational success and the development of strong teams.
 

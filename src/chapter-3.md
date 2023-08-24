@@ -1,5 +1,3 @@
-Chapter 3: Understanding the Psychology of Influence
-====================================================
 
 In this chapter, we will explore techniques for understanding the psychology of influence, identify key elements that affect persuasion, and explore the relationship between influence and motivation.
 

@@ -1,5 +1,3 @@
-Chapter 5: Using Persuasion Techniques
-======================================
 
 In this chapter, we will explore techniques for using persuasion to influence and motivate others. We will discuss the different types of persuasion and how to apply them in various situations.
 

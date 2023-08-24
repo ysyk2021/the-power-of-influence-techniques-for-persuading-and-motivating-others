@@ -1,5 +1,3 @@
-Techniques for Measuring and Evaluating Influence Effectiveness
-========================================================================
 
 In this chapter, we will explore various techniques that can be utilized to measure and evaluate the effectiveness of influence strategies. Understanding how to assess the impact of your persuasion and motivation efforts is crucial in order to continually refine and improve your influencing skills. By applying these techniques, you can gain valuable insights into the effectiveness of your influence attempts and make data-driven decisions to enhance your persuasive abilities.
 

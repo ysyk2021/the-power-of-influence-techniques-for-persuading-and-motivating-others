@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we will introduce the concept of influence and its importance in various aspects of life. We will explore how effective influence can lead to successful outcomes and motivate others.
 
@@ -22,5 +20,4 @@ Conclusion
 ----------
 
 Influence plays a crucial role in various aspects of life, from leadership to personal relationships. By understanding the benefits and challenges of effective influence and using techniques that promote collaboration, communication, and motivation, individuals can achieve their desired outcomes and become more effective communicators and leaders.
-
 

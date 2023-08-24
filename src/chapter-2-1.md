@@ -1,5 +1,3 @@
-Different Perspectives and Approaches to Influence
-===========================================================
 
 In this chapter, we will explore the various perspectives and approaches to influence. Understanding these different viewpoints can enhance our understanding of how people are persuaded and motivated in different contexts.
 

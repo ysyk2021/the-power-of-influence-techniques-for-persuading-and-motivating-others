@@ -1,4 +1,3 @@
-# Communicating Effectively
 
 In this chapter, we will explore techniques for developing credibility and trust through effective communication. We will discuss how to use language, tone, and body language to convey your message in a compelling and trustworthy way.
 

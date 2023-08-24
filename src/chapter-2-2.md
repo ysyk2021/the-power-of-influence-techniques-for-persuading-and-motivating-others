@@ -1,4 +1,3 @@
-# The Impact of Influence on Team Performance
 
 In this chapter, we will explore the significant impact of influence on team performance. Understanding the power of influence and mastering effective techniques for persuading and motivating others are essential skills for building high-performing teams. By harnessing the power of influence, leaders can inspire their team members, foster collaboration, and drive exceptional results.
 

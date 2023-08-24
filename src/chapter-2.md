@@ -1,5 +1,3 @@
-Chapter 2: Overview of Influence
-================================
 
 In this chapter, we will provide an overview of influence and explore different perspectives and approaches to influence. We will also discuss the impact of influence on team performance and techniques for overcoming common challenges in influence.
 
